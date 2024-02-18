@@ -1,1 +1,1 @@
-# Codesoft_Internship_Project
+# Codsoft_Internship_Project
